@@ -120,6 +120,14 @@ TODO
 
 # Winter
 
-TODO
+## Survival Needs
+- Water
+- Nonperishables
+- 32x100 ft. roll of agricultural sheeting (for cutting into individual tarps each 16x10 ft)—credit to @harmreductionservices in Sacramento, CA for the idea
+- Hand warmers
+- Battery packs and cables for charging
+- Hats
+- Gloves and mittens
+- Scarves
 
 # Spring
